@@ -1,1 +1,4 @@
-# Nikhil_8850375 I am not aware about the GIThub.
+- Your name- Nikhil Kumar
+- Project title- Assignment2
+- Links to website & social media- https://conestoga.desire2learn.com/d2l/le/content/687308/viewContent/15668623/View
+- Contact details- 547-225-3696
